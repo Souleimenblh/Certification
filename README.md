@@ -1,4 +1,4 @@
-httpswww.efset.orgcertWJCW8k :EF SET "A1"
+Links:
 
 https://www.efset.org/cert/54g8Te
 
