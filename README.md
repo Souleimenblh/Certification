@@ -53,3 +53,29 @@ https://www.hackerrank.com/certificates/015f39301794
 https://www.hackerrank.com/certificates/84ac4e209bbe
 
 https://learn.deeplearning.ai/accomplishments/75a89401-ddf0-48e2-a348-5f6dec42750b?usp=sharing
+
+---------------------------------------------------------------------------------------------------------------------
+
+https://www.sololearn.com/certificates/CC-G04HPH6K
+https://www.sololearn.com/certificates/CC-22TRX7UN
+https://www.sololearn.com/certificates/CC-Q2KNXIM2
+https://www.sololearn.com/certificates/CT-H0OCEKCW
+https://www.sololearn.com/certificates/CC-LGC9HPZ5
+https://www.sololearn.com/certificates/CC-A3KYX4MO
+https://www.sololearn.com/certificates/CC-TGRICSMZ
+https://www.sololearn.com/certificates/CC-ZFXQNVGY
+https://www.sololearn.com/certificates/CC-JPYBFAUY
+https://www.sololearn.com/certificates/CC-E14ECEDX
+https://www.sololearn.com/certificates/CC-EMTGVQPT
+https://www.sololearn.com/certificates/CC-AG64VSWH
+
+-------------------------------------------------------
+Effective Leadership: HP LIFE
+fd27db9d-b423-4bd3-a605-7f4e2ab0bec8
+
+Success Mindset: HP LIFE
+6a18decb-48da-469f-9c28-927a740ebf58
+
+https://www.udemy.com/certificate/UC-378d7add-5cae-4fc6-a520-c1eaa72a0833/
+https://udemy-certificate.s3.amazonaws.com/pdf/UC-b8a745c6-9edb-4ea9-ba72-e1da55a3493d.pdf
+https://www.udemy.com/certificate/UC-b8ca76d9-8509-4520-bef3-092b74fc4a82/
